@@ -1,1 +1,0 @@
-# oicchi-natto.github.io
